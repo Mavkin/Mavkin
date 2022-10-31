@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Mavkin
+- 👀 I’m interested in coding
+- Im new and i dont have any kind of experience
